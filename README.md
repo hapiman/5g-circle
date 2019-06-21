@@ -26,6 +26,9 @@
 
 * [5G行业的投资时点](https://mp.weixin.qq.com/s/ZVMyAh07cUCFkOd4ZVVzzQ)
 
+## 音频
+
+* [吴军·信息论40讲](https://h5.sao.cn/product/detail?alias=ol0nqijuh7ny&spm=igeto446)
 
 ## 视频
 * [【何同学】有多快？5G在日常使用中的真实体验](https://www.bilibili.com/video/av54737593/)
