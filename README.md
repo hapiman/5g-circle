@@ -24,6 +24,8 @@
 
 * [5G来了，6G还会远吗？](https://mp.weixin.qq.com/s/xJp8YnIb8O3Qq97VBj5hrA)
 
+* [5G来了，云计算会有什么开脑洞的玩法？](https://www.zhihu.com/question/328128885)
+
 * [5G行业的投资时点](https://mp.weixin.qq.com/s/ZVMyAh07cUCFkOd4ZVVzzQ)
 
 ## 音频
