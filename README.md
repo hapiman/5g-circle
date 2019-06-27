@@ -26,6 +26,8 @@
 
 * [5G来了，云计算会有什么开脑洞的玩法？](https://www.zhihu.com/question/328128885)
 
+* [5G来了，世界又变了！](https://mp.weixin.qq.com/s?src=11&timestamp=1561617220&ver=1693&signature=ngiPjHAEc0LFmrNEfSU1N1oyqbYo2BQherRpiAowDn3Td9It64JIbzTNWpl*X2ozwjZnNbNIRe47rf0W7ChnD0gXgKYmeJ921audt7BgRVycY4BBZJhhuvjqqhhFxDcF&new=1)
+
 * [5G行业的投资时点](https://mp.weixin.qq.com/s/ZVMyAh07cUCFkOd4ZVVzzQ)
 
 ## 音频
