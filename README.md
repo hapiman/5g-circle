@@ -30,6 +30,16 @@
 
 * [5G行业的投资时点](https://mp.weixin.qq.com/s/ZVMyAh07cUCFkOd4ZVVzzQ)
 
+* [5G将至，未来已来（下）](https://mp.weixin.qq.com/s/033CvHPgWmXFk8zSpGkkTg)
+
+* [5G将至，未来已来（上）](https://mp.weixin.qq.com/s/gyECAZekZVGsbE4EAlvimw)
+
+* [5G，5G，5G，9大要点全解析！](https://mp.weixin.qq.com/s/pGrs7uNEvXcsS_qu9iD1Mw)
+
+* [5G来了，世界又变了！](https://mp.weixin.qq.com/s/GenhKihYqpHTuHrC3KFgxQ)
+
+* [5G 到底是什么？今年该买 5G 手机吗？](https://mp.weixin.qq.com/s/1jQrH9tlll-jxTfW69Ny5Q)
+
 ## 音频
 
 * [吴军·信息论40讲](https://h5.sao.cn/product/detail?alias=ol0nqijuh7ny&spm=igeto446)
